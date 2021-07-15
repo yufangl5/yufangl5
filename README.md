@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yufangl5
+- 👀 I’m interested in painting
+- 🌱 I’m currently learning Arts
+- 💞️ I’m looking to collaborate on Art
+- 📫 How to reach me insta:jadeartzonex
